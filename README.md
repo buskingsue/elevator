@@ -21,6 +21,7 @@
 
 
 ## 4. 작동 영상
+https://www.instagram.com/p/DE3zP1cSpyE/
 
 ## 5. PPT
 
